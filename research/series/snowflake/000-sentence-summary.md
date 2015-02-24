@@ -1,4 +1,9 @@
 
+Fairy beings invade earth, and humans fight back with help from other
+creatures.
+
+---
+
 Take an hour and write a one-sentence summary of your novel.  Something like
 this: "A rogue physicist travels back in time to kill the apostle Paul." (This
 is the summary for my first novel, Transgression.) The sentence will serve you
