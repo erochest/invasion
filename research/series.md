@@ -65,11 +65,30 @@ get a little out of hand.)
 > A woman and her sister travel into the desert outside Damascus to investigate
 > a colony of blue angels.
 
+Sarah and Sam have established an uneasy half-truce, which is interrupted by
+Sam's handler at the agency, who wants her (them) to go check out rumors of a
+colony of angels in the desert outside Damascus. Sam angers their driver, and
+he dumps them at a set of ruins in the desert. They are found by the angels,
+captured, and taken back to their camp to be sent over. As they are led into a
+gateway, Sarah goes into convulsions as her memories come back. The sisters
+escape from the angels and Sha-Rin and are able to make contact with their
+handler.
+
 #### III
 
 > While the angels make themselves public, the woman's sister tries to come to
 > terms with what she is, make contact with other shapeshifters, and stay with
 > her "sister."
+
+##### 0
+
+##### 1
+
+##### 2
+
+##### 3
+
+##### 4
 
 ### Disasters
 
