@@ -1,5 +1,0 @@
-
-# Name
-
-## Character Summary
-
